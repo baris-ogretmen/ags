@@ -1,0 +1,2 @@
+# ags
+kendim için 
